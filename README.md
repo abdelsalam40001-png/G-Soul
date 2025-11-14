@@ -41,6 +41,12 @@ Mohamed Mohsen – Content Creator
 Primary: Copywriting, post creation, storytelling, SWOT analysis, content creation for TikTok reels, and Business Model Canvas (BMC).  
 Secondary: Content planning, campaign ideas, and trend adaptation. 
 
+Radwa Ramadan – Marketing Assistant 
+
+Primary: Marketing coordination, research, and support in campaign execution.  
+Secondary: Assisting in content organization, communication, and reporting.  
+
+
 # Work Plan
 
 1. *Research & Analysis*
